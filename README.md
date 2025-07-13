@@ -1,8 +1,11 @@
-##  BERAPA BANYAK MALING YANG DATENG? LIAT DI BAWAH!!
+## BERAPA BANYAK MALING YANG DATENG? LIAT DI BAWAH!!
 
-![Visitor Count](https://count.getloli.com/get/@antoo69-Music2025?theme=rule34)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=antoo69&style=flat-square&color=blue" alt="visitor count"/>
+</p>
 
----
+<div align="center">
 
-<h1 style="font-size: 50px; color: red;">MAU NGAPAIN????</h1>
+# MAU NGAPAIN????
 
+</div>
