@@ -8,5 +8,5 @@
 <details align="center">
   <summary>BOT MUSIC 2025 LAST UPDATE</summary>
 
-  # MAU NGAPAIN????
+  # YAHHH SI TOLOL MAU MALING!!!!
 </details>
