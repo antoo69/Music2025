@@ -1,7 +1,7 @@
 ## BERAPA BANYAK MALING YANG DATENG? LIAT DI BAWAH!!
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=antoo69&style=flat-square&color=blue" alt="visitor count"/>
+  <img src="https://count.getloli.com/get/@antoo69?theme=rule34" alt="visitor count"/>
 </p>
 
 <div align="center">
